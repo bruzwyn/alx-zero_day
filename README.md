@@ -1,1 +1,1 @@
-follow me in instagram @bruzwyn
+Follow me on instagram @bruzwyn
